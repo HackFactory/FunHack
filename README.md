@@ -45,3 +45,11 @@
 
 [Видео](https://vk.com/away.php?to=https%3A%2F%2Fwww.facebook.com%2FSci.Guide%2Fvideos%2F789450127923308%2F&post=207407465_111&cc_key=) с выступления (смотрим с 57:06)
 
+## Участники
+
+Артём Куприянов (@ArtemKupriyanov)  
+Ярослав Спирин (@mountain-viewer)  
+Стас Округ (@Konagmo)  
+Илья Захаркин (@izakharkin)  
+Роман Ушаков (@canorbal)
+
